@@ -1,2 +1,2 @@
 # Paradigm
-Decentralized Markets &amp; Exchanges! - a Unicorn Bank HPC Division
+Decentralized Markets &amp; Exchange - a Unicorn Bank HPC Division
